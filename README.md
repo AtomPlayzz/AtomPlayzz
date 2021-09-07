@@ -1,0 +1,4 @@
+- Hi Im AtomPLayzz
+- I am a developer for mutliple languages
+- languages I know include c++,python,javascript,php
+- I am very cheap when it coes to hiring me
